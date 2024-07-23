@@ -18,3 +18,6 @@ My name is gurwinder singh. I am from village ralla which is located mansa disti
 ### TO CONTACT ME
 
 [CLICK HERE](https://www.instagram.com/gurwinder.kular?igsh=MXMycGlrenNhaGQzbw==)
+
+
+**E-MAIL :-** gurwinderkular77@gmail.com
