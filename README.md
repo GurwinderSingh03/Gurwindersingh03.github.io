@@ -23,5 +23,5 @@ My name is gurwinder singh. I am from village ralla which is located mansa disti
 
 DAILY BLOG:
 
-
 ![CLICK HERE](https://gurwindersingh03.github.io/Dailyvlog.github.io/)
+
